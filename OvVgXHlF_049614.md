@@ -1,0 +1,242 @@
+<p>西安百度SEO推广：如何获取西安百度推广联系方式并快速对接</p>
+<p>随着西安本地市场竞争加剧，企业通过百度进行搜索推广和SEO优化已成为获取客户的常规渠道。围绕西安百度推广与联系方式这一核心，本文将从如何快速找到可信的联系方式、联系前需要准备的材料、评估代理资质的要点、以及对接后的执行流程等方面，给出实用可操作的建议，帮助本地企业高效启动百度推广。</p>
+<p>一、为什么要重视西安百度推广联系方式？</p>
+<p>在本地化推广中，能够迅速联系到专业的百度推广服务商或百度官方客服，能节省沟通成本、缩短开户与投放周期。正规渠道不仅能提供开户支持、资质确认、投放策略与优化建议，还能在遇到账号问题时提供官方协助，保障投放效果与资金安全。</p>
+<p>二、如何获取正规联系方式？</p>
+<p>- 官方渠道：优先通过百度推广官方平台或百度搜索资源平台查询官方客服和开户入口，避免通过不明来源的第三方链接。</p>
+<p>- 本地搜索：在百度地图或本地服务中搜索“西安 百度推广”“西安 百度代理”，查看商家营业执照、用户评价与真实案例。</p>
+<p>- 授权代理：查询是否为“百度授权代理商/认证服务商”，这类机构通常有百度的合作资质和账户开户权限。</p>
+<p>注意：不要轻信陌生短信或私聊中提供的“低价开户”联系方式，优先核实资质与真实案列。</p>
+<p>三、联系前应准备的资料与问题清单</p>
+<p>在主动联系推广方或客服前，准备好以下信息能提高沟通效率：</p>
+<p>- 企业基本信息：公司名称、行业、主营产品/服务、目标城市或覆盖范围（西安本地或全国）。</p>
+<p>- 网站资料：网站网址、是否有ICP备案、现有访问量与转化渠道、移动端适配情况。</p>
+<p>- 目标与预算：预期投放目标（品牌曝光、询盘、门店到访）、日/月预算区间。</p>
+<p>- 关注关键词：列出若干核心关键词与竞品，便于初步评估投放难度。</p>
+<p>- 需求时间表：希望何时开始投放、是否季节性活动等。</p>
+<p>此外，向联系方式索要的关键问题包括：开户流程、结算方式（预付/后付）、CPC预估、是否提供关键词诊断、是否提供落地页优化与跟踪设置、报告频次与考核KPI等。</p>
+<p>四、评估联系方式与代理资质的要点</p>
+<p>接到联系方式后，应重点核查以下方面，避免后期纠纷：</p>
+<p>- 是否有百度官方授权或认证资质，可要求查看资质证明或在百度官网核对。</p>
+<p>- 成功案例与行业经验，要求提供与西安或相似行业的投放数据与效果报告（可要求脱敏数据）。</p>
+<p>- 合同条款：服务内容、退款与违约条款、数据归属、账户管理权限说明。</p>
+<p>- 团队与服务模式：是否有独立的客户经理与投放优化团队，是否提供电话与售后支持。</p>
+<p>- 价格与结算透明度：是否存在隐藏费用、是否按效果付费或仅按点击计费。</p>
+<p>五、对接话术与联系模板（示例）</p>
+<p>初次电话/邮件可以简明扼要说明目的，例如：</p>
+<p>“您好，我是西安某某公司市场负责人，计划在西安区域做百度搜索推广/SEO优化，希望咨询开户与服务细节。我们主营xxx，预算是每月xxx，想了解贵方的服务内容、投放流程与往期类似案例，方便约个时间详聊或提供报价吗？”</p>
+<p>通过这样的开场，可以快速把话题聚焦到需求与预算上，便于对方给出可行方案。</p>
+<p>六、对接后的基本流程与注意事项</p>
+<p>- 签约与开户：确认合同与资质后完成账户开户，注意账户和资金是否由企业自行掌控或第三方代为管理的约定。</p>
+<p>- 关键词与落地页优化：在投放前做关键词分组、创意编写与落地页测试，确保用户点击后能有效转化。</p>
+<p>- 转化追踪与数据监测：配置百度统计、百度转化追踪，确保数据来源可追溯，便于优化。</p>
+<p>- 持续优化：定期根据数据调整关键词、否定词、出价与投放时间段，以降低获客成本。</p>
+<p>- 定期汇报：要求代理每周或每月提供投放报告，包含点击、展现、转化、成本等关键指标，并给出优化建议。</p>
+<p>- 风险防控：保留合同与沟通记录，明确违约处理方式，避免被中途停服或异动账户。</p>
+<p>七、常见问题与提醒</p>
+<p>- 不要盲目追求低CPC而忽视落地页与转化率，低价点击若无法转化只是增加成本。</p>
+<p>- 小心“代开账户”风险，优先选择能给企业独立账户权限的服务商。</p>
+<p>- 若要做SEO（自然排名）与付费推广同时进行，确保内容质量与站点技术优化（移动端、加载速度、站内结构）到位。</p>
+<p>- 对本地门店企业，可结合百度地图、好评管理与本地词优化，提升本地流量转化率。</p>
+<p>结语</p>
+<p>获取西安百度推广联系方式只是第一步，更重要的是通过正规渠道筛选出有资质、有案例、沟通顺畅的合作方。建议优先通过百度官方通道和百度认证代理商获取联系方式，联系前准备好企业与网站资料，明确目标与预算，在签约与投放过程中注重数据监测与持续优化。需要帮助撰写联系邮件模板、评估代理资质或准备开户资料，我可以为您定制化拟稿与核查清单，欢迎继续提供企业基本信息以便更具体地协助。</p>
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/a5e05f7c09b3c2b0d868e27265db97c5fdafd0a7?/382
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/5a2c575796bbb7e2fb975df86a3b2a23c2b0f3a4?539=bnA
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/5a2c575796bbb7e2fb975df86a3b2a23c2b0f3a4?/bey?20261025=85
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/5a2c575796bbb7e2fb975df86a3b2a23c2b0f3a4?/294
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/a3113504cfa924099531ec358e0f71344def2671?714=clF
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/a3113504cfa924099531ec358e0f71344def2671?/she?20261025=91
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/a3113504cfa924099531ec358e0f71344def2671?/023
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/97da419176f6fd01b2ffcc2099bcee9792209828?358=ocM
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/97da419176f6fd01b2ffcc2099bcee9792209828?/ftv?20261025=05
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/97da419176f6fd01b2ffcc2099bcee9792209828?/933
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/e082ece71183e96bfcf666e7b7d8022ceaa92e8c?514=xrY
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/e082ece71183e96bfcf666e7b7d8022ceaa92e8c?/qxi?20261025=72
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/e082ece71183e96bfcf666e7b7d8022ceaa92e8c?/824
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/e8d079cf6d1ef3e13c78b326f8b531cf5de37171?431=nuF
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/e8d079cf6d1ef3e13c78b326f8b531cf5de37171?/dgz?20261025=74
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/e8d079cf6d1ef3e13c78b326f8b531cf5de37171?/149
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/81de6917223327f9d1c470ccb662900060f83530?681=hsR
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/81de6917223327f9d1c470ccb662900060f83530?/ola?20261025=14
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/81de6917223327f9d1c470ccb662900060f83530?/619
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/8a3d2e143b241f996bf8eb41c68b018d6ce1a46b?257=lwO
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/8a3d2e143b241f996bf8eb41c68b018d6ce1a46b?/esb?20261025=60
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/8a3d2e143b241f996bf8eb41c68b018d6ce1a46b?/709
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/c4dde4e2d397c442316684beed4d259f920d000c?270=arZ
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/c4dde4e2d397c442316684beed4d259f920d000c?/wfj?20261025=80
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/c4dde4e2d397c442316684beed4d259f920d000c?/581
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/950c8f97b5f3c8e878ab0f5ad92a2cf9c5d24985?724=gwR
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/950c8f97b5f3c8e878ab0f5ad92a2cf9c5d24985?/nid?20261025=57
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/950c8f97b5f3c8e878ab0f5ad92a2cf9c5d24985?/768
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/3056b9a7728cd635fccd1f65b89bcec575a319fa?317=xdH
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/3056b9a7728cd635fccd1f65b89bcec575a319fa?/msi?20261025=61
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/3056b9a7728cd635fccd1f65b89bcec575a319fa?/302
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/cff348cf5dd4f00da8189f4da272c3a9e0e8265f?617=whJ
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/cff348cf5dd4f00da8189f4da272c3a9e0e8265f?/exl?20261025=36
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/cff348cf5dd4f00da8189f4da272c3a9e0e8265f?/278
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/8ed0b7b97e982870b47e4c6b9b76fcff29bad837?751=heW
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/8ed0b7b97e982870b47e4c6b9b76fcff29bad837?/pvp?20261025=53
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/8ed0b7b97e982870b47e4c6b9b76fcff29bad837?/749
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8c393300b519c9dcf1e0941d71284b4b8c61759d?381=rlW
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8c393300b519c9dcf1e0941d71284b4b8c61759d?/xvj?20261025=61
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8c393300b519c9dcf1e0941d71284b4b8c61759d?/145
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/b45971e13ac5e5968dcd62453226e5c6f5e57b20?553=thT
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/b45971e13ac5e5968dcd62453226e5c6f5e57b20?/kzx?20261025=94
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/b45971e13ac5e5968dcd62453226e5c6f5e57b20?/944
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/22cf39830d0fb305a3b2d273087e8df647639b77?914=aeD
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/22cf39830d0fb305a3b2d273087e8df647639b77?/kij?20261025=03
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/22cf39830d0fb305a3b2d273087e8df647639b77?/466
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/2932c99ec595c8c42cd361f13275e86d7a23205f?427=wlB
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/2932c99ec595c8c42cd361f13275e86d7a23205f?/ccu?20261025=27
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/2932c99ec595c8c42cd361f13275e86d7a23205f?/367
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/1d632d1aa0c2dda74ce57ea2eb319e98deaf654e?380=kbB
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/1d632d1aa0c2dda74ce57ea2eb319e98deaf654e?/ymh?20261025=91
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/1d632d1aa0c2dda74ce57ea2eb319e98deaf654e?/144
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/c697aa5bf368f9e843427e48ae3a6483eb0585b3?975=jjY
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/c697aa5bf368f9e843427e48ae3a6483eb0585b3?/tqh?20261025=40
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/c697aa5bf368f9e843427e48ae3a6483eb0585b3?/188
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/d572f45ebcb3e999de5b0497c33b8cdcadb941a9?369=wdJ
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/d572f45ebcb3e999de5b0497c33b8cdcadb941a9?/nid?20261025=25
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/d572f45ebcb3e999de5b0497c33b8cdcadb941a9?/600
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8a3fdbf910bdc9d27f1ffad0b9c1c28d04dd2c13?614=yvN
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8a3fdbf910bdc9d27f1ffad0b9c1c28d04dd2c13?/cjh?20261025=16
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8a3fdbf910bdc9d27f1ffad0b9c1c28d04dd2c13?/580
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/de4f20929f1647a77513081a074f5192491b7b05?803=gmQ
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/de4f20929f1647a77513081a074f5192491b7b05?/zok?20261025=07
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/de4f20929f1647a77513081a074f5192491b7b05?/915
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/f74cb21fadb98e362256606d454494237986a049?945=aeH
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/f74cb21fadb98e362256606d454494237986a049?/jxz?20261025=46
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/f74cb21fadb98e362256606d454494237986a049?/601
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/6e5db664cfb8d5d4b1d85a09c041ba18f82656a0?613=wmR
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/6e5db664cfb8d5d4b1d85a09c041ba18f82656a0?/myj?20261025=72
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/6e5db664cfb8d5d4b1d85a09c041ba18f82656a0?/813
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/730659e03fe56d6bcfa4526862d9c42f9d8a5cc5?257=icR
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/730659e03fe56d6bcfa4526862d9c42f9d8a5cc5?/tql?20261025=37
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/730659e03fe56d6bcfa4526862d9c42f9d8a5cc5?/146
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/2782f3f35b36b3b6047c49a2e1ca67b651595631?781=jnX
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/2782f3f35b36b3b6047c49a2e1ca67b651595631?/vne?20261025=83
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/2782f3f35b36b3b6047c49a2e1ca67b651595631?/263
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/4c5b8b8b1f4a279efdc255be2018eca2d534228a?846=kyO
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/4c5b8b8b1f4a279efdc255be2018eca2d534228a?/ptf?20261025=30
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/4c5b8b8b1f4a279efdc255be2018eca2d534228a?/889
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8dc3ba82394c83f01f9d6e035a794167837b554a?925=axW
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8dc3ba82394c83f01f9d6e035a794167837b554a?/sdr?20261025=50
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8dc3ba82394c83f01f9d6e035a794167837b554a?/798
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0ced60378d2cf91176d57e4bb5a6ae16846c731d?614=roG
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0ced60378d2cf91176d57e4bb5a6ae16846c731d?/ryt?20261025=59
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0ced60378d2cf91176d57e4bb5a6ae16846c731d?/055
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/63e8ce3b98e7ad541c2a31a04cccd517378a29bf?991=reJ
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/63e8ce3b98e7ad541c2a31a04cccd517378a29bf?/olg?20261025=35
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/63e8ce3b98e7ad541c2a31a04cccd517378a29bf?/680
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/9bddbaa9f06c72501d27670096d1a1c1cdadfd0e?037=uvU
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/9bddbaa9f06c72501d27670096d1a1c1cdadfd0e?/jnu?20261025=77
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/9bddbaa9f06c72501d27670096d1a1c1cdadfd0e?/178
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/2aa0bb45aeee20a75caba67eb47e88fa1604162a?946=swP
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/2aa0bb45aeee20a75caba67eb47e88fa1604162a?/hfg?20261025=37
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/2aa0bb45aeee20a75caba67eb47e88fa1604162a?/589
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/320bf25dc8967d9c37e21b6802e5177753260209?507=rsK
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/320bf25dc8967d9c37e21b6802e5177753260209?/xin?20261025=16
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/320bf25dc8967d9c37e21b6802e5177753260209?/834
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/51ad902969eb6b81abc4b58f3e439cd73ce17ad1?147=spO
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/51ad902969eb6b81abc4b58f3e439cd73ce17ad1?/vcq?20261025=15
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/51ad902969eb6b81abc4b58f3e439cd73ce17ad1?/490
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/5cbe0357750d063f050bf71daf67294d086c26e2?605=arE
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/5cbe0357750d063f050bf71daf67294d086c26e2?/akc?20261025=26
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/5cbe0357750d063f050bf71daf67294d086c26e2?/481
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/40a05c3208e1815b27c016938d8812da07480d6a?384=mdY
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/40a05c3208e1815b27c016938d8812da07480d6a?/och?20261025=94
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/40a05c3208e1815b27c016938d8812da07480d6a?/123
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/c06802267e657c9a2b8d4fbd4357142b074cf7f7?946=zxV
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/c06802267e657c9a2b8d4fbd4357142b074cf7f7?/xpr?20261025=52
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/c06802267e657c9a2b8d4fbd4357142b074cf7f7?/809
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/d2882156292f5c69cad0ed3d783947508b039370?681=zgJ
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/d2882156292f5c69cad0ed3d783947508b039370?/drm?20261025=26
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/d2882156292f5c69cad0ed3d783947508b039370?/981
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/16fe56a21a51ae3a6cd68375fb445b6db31aebf9?384=liJ
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/16fe56a21a51ae3a6cd68375fb445b6db31aebf9?/pec?20261025=85
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/16fe56a21a51ae3a6cd68375fb445b6db31aebf9?/146
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/9b319f9a156500fc18a1aa29652f9d83219b91aa?169=ahJ
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/9b319f9a156500fc18a1aa29652f9d83219b91aa?/hvq?20261025=14
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/9b319f9a156500fc18a1aa29652f9d83219b91aa?/887
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/c2d5824740e0489be497b259228708292ce03ef6?000=skC
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/c2d5824740e0489be497b259228708292ce03ef6?/ngr?20261025=44
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/c2d5824740e0489be497b259228708292ce03ef6?/089
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/a45c11a5ebea6055548091ad0761218ee7e8e7ca?681=ylC
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/a45c11a5ebea6055548091ad0761218ee7e8e7ca?/tkw?20261025=11
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/a45c11a5ebea6055548091ad0761218ee7e8e7ca?/034
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/40880e8c8fff09c77e08c2f83f65f3da46fc20a7?357=sdN
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/40880e8c8fff09c77e08c2f83f65f3da46fc20a7?/fqk?20261025=93
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/40880e8c8fff09c77e08c2f83f65f3da46fc20a7?/822
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/3fa806c1420bba2b628e9f38a4b21921a385844f?926=uiK
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/3fa806c1420bba2b628e9f38a4b21921a385844f?/ghm?20261025=04
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/3fa806c1420bba2b628e9f38a4b21921a385844f?/387
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/99c6a59227025c665a1fd998364b0bc180ce0d65?881=wdU
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/99c6a59227025c665a1fd998364b0bc180ce0d65?/zup?20261025=88
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/99c6a59227025c665a1fd998364b0bc180ce0d65?/944
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/23c240a2ad406b2956e6ee5d77c71168fc02bde5?118=dbD
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/23c240a2ad406b2956e6ee5d77c71168fc02bde5?/toi?20261025=47
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/23c240a2ad406b2956e6ee5d77c71168fc02bde5?/153
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8f36ad9a6ccf9d17d372cd87a168b8a5ac3f72f7?271=goU
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8f36ad9a6ccf9d17d372cd87a168b8a5ac3f72f7?/jkm?20261025=87
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8f36ad9a6ccf9d17d372cd87a168b8a5ac3f72f7?/168
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/5d2a434fe24e1dc88e045bd2fe2d83c7f7b6f120?499=bvS
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/5d2a434fe24e1dc88e045bd2fe2d83c7f7b6f120?/tug?20261025=80
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/5d2a434fe24e1dc88e045bd2fe2d83c7f7b6f120?/733
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/643ff4709b1ccd00b68a8fef5100715b67def5a2?570=pwD
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/643ff4709b1ccd00b68a8fef5100715b67def5a2?/ipt?20261025=93
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/643ff4709b1ccd00b68a8fef5100715b67def5a2?/389
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0fc3a53a776ff86e9478dfb6332844a018cdeaf8?613=ptC
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0fc3a53a776ff86e9478dfb6332844a018cdeaf8?/imh?20261025=35
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0fc3a53a776ff86e9478dfb6332844a018cdeaf8?/913
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/62f8bc96b4f76fe7241835289d5777b6fb5aed81?664=pgP
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/62f8bc96b4f76fe7241835289d5777b6fb5aed81?/gdq?20261025=77
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/62f8bc96b4f76fe7241835289d5777b6fb5aed81?/636
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/63618aac6494b5257f7096c36126cc95eb81ad48?797=loJ
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/63618aac6494b5257f7096c36126cc95eb81ad48?/shk?20261025=11
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/63618aac6494b5257f7096c36126cc95eb81ad48?/629
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/42dcbb667112ae42c4624aa1a7937678e92b4c9f?159=xrS
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/42dcbb667112ae42c4624aa1a7937678e92b4c9f?/gtv?20261025=37
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/42dcbb667112ae42c4624aa1a7937678e92b4c9f?/791
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/7a51647d8f00e3c9cf69db96f92715db46fc0e59?491=aeR
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/7a51647d8f00e3c9cf69db96f92715db46fc0e59?/vju?20261025=61
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/7a51647d8f00e3c9cf69db96f92715db46fc0e59?/690
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/cc7b1906eb1b569a6ac1656713cbf90507f9675c?757=ltM
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/cc7b1906eb1b569a6ac1656713cbf90507f9675c?/xec?20261025=28
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/cc7b1906eb1b569a6ac1656713cbf90507f9675c?/822
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/bbd936ec34a00aceb4ecc99b6d33ab02d46c7a76?603=lpI
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/bbd936ec34a00aceb4ecc99b6d33ab02d46c7a76?/nhu?20261025=03
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/bbd936ec34a00aceb4ecc99b6d33ab02d46c7a76?/237
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8a8dc93f07e014facfe847786c5359cbced1eb5e?368=afC
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8a8dc93f07e014facfe847786c5359cbced1eb5e?/gqy?20261025=06
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8a8dc93f07e014facfe847786c5359cbced1eb5e?/250
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/06e21509f97fe8914e944dd93aa61bfc0f36361d?034=wwF
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/06e21509f97fe8914e944dd93aa61bfc0f36361d?/mdm?20261025=36
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/06e21509f97fe8914e944dd93aa61bfc0f36361d?/147
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8ecdebe63349df6e2091308bfd06619ed4652fa7?956=zqP
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8ecdebe63349df6e2091308bfd06619ed4652fa7?/zhs?20261025=50
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/8ecdebe63349df6e2091308bfd06619ed4652fa7?/580
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/c670d6eb3bdf4449ba065d11e3dc211d4524a217?568=viN
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/c670d6eb3bdf4449ba065d11e3dc211d4524a217?/ubz?20261025=59
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/c670d6eb3bdf4449ba065d11e3dc211d4524a217?/603
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/10331e4db997e701c18424f563ff620f9047d560?722=vcW
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/10331e4db997e701c18424f563ff620f9047d560?/zdw?20261025=26
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/10331e4db997e701c18424f563ff620f9047d560?/155
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/f90202b707043c46c0006113cbaa9c3b9dfce46d?491=dgF
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/f90202b707043c46c0006113cbaa9c3b9dfce46d?/arf?20261025=58
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/f90202b707043c46c0006113cbaa9c3b9dfce46d?/698
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/ba71c81f362091ac84a80184ac5a96bfa2daeb69?381=rlA
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/ba71c81f362091ac84a80184ac5a96bfa2daeb69?/wbm?20261025=33
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/ba71c81f362091ac84a80184ac5a96bfa2daeb69?/117
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0d9edab13b95f111eddd4c69f95134a308acd7a3?725=eoZ
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0d9edab13b95f111eddd4c69f95134a308acd7a3?/ttc?20261025=48
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0d9edab13b95f111eddd4c69f95134a308acd7a3?/267
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/915c5a3c0f016902c5c0cb63ee5ab88fea1b9858?469=taP
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/915c5a3c0f016902c5c0cb63ee5ab88fea1b9858?/arv?20261025=03
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/915c5a3c0f016902c5c0cb63ee5ab88fea1b9858?/592
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0865e26020929d878a028dbc4cea46cbe89c469f?614=zqG
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0865e26020929d878a028dbc4cea46cbe89c469f?/lmr?20261025=50
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/0865e26020929d878a028dbc4cea46cbe89c469f?/258
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/999b868fa08779058b5ad776df3a0266666db868?159=haD
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/999b868fa08779058b5ad776df3a0266666db868?/sav?20261025=38
+https://github.com/RaikageWeave86/repo-j4320zs9/commit/999b868fa08779058b5ad776df3a0266666db868?/603
+https://github.com/selfspawntreasure/repo-a9u3b6yq/commit/ccdf34fc2343d8803410a35e88cf417d6d706ec5?406=voG
